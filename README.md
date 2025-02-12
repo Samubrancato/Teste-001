@@ -1,1 +1,1 @@
-Fala sobre as dificuldades do naruto na aldeia da folha
+Fala sobre as dificuldades do naruto 
